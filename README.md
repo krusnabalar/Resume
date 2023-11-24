@@ -1,1 +1,2 @@
-# Krusna Balar's Resume - Nov 25, 2023
+# Krusna Balar's Resume
+Nov 25, 2023
